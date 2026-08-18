@@ -1,1 +1,1 @@
-thuy trang id bx 
+thuy trang la ai
